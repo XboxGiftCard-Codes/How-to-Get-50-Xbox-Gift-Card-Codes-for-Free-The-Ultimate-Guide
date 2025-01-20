@@ -2,7 +2,7 @@
 
 **Are you looking for a way to get $50 Xbox Gift Card Codes for free?** You're in the right place! In this ultimate guide, we'll show you exactly how you can unlock free Xbox gift cards to enhance your gaming experience, all while keeping things safe, legal, and straightforward.
 
-### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/amazon/go/)
+### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/xbox/go/)
 
 Before we dive in, let's make sure you're aware of an amazing **free offer**. By the end of this article, you'll have the opportunity to claim a **free $50 Xbox gift card code**. So, grab a seat and read on to learn how you can benefit from this fantastic offer, along with the methods you can use to score gift cards without spending a dime!
 
